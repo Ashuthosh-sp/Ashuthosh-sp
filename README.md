@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Ashuthosh-sp
 - 👀 I’m interested in Programing🧑‍💻
-- 🌱 I’m currently learning MCA at MIT Manipal
 - 📫 How to reach me ...👇👇
 - Email: ashuthosh.s.p@gmail.com
 - Twitter: @Twitter.com/Ashuthosh_s_p
