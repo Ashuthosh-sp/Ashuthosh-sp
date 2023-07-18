@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Ashtuthosh S Padmashali
+- 👋 Hi, I’m Ashuthosh S Padmashali
 - 👀 I’m interested in Programing and Web Development🧑‍💻
 - 📫 How to reach me ...👇👇
 - Email: ashuthosh.s.p@gmail.com
